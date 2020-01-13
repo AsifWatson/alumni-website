@@ -1,0 +1,1 @@
+This is a website to communicate with the CSTE department alumni members. Interesting ideas and job posts can be discussed here. It also shows the achievements of CSTE department. Students of CSTE department can reach alumni members through this website.
